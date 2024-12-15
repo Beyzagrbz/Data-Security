@@ -1,0 +1,1 @@
+# Veri-g-venli-i-Proje-devi
